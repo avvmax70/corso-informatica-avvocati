@@ -14,7 +14,7 @@ Avvocato e fondatore dello studio [KBL LAW](https://kbl-law.com). Si occupa prin
 
 ### Avv. Massimiliano Nicotra
 
-Avvocato, si occupa di diritto della tecnologia da oltre vent'anni, è Data Protection Officer di società multinazionali e professore a contratto in “Fondamenti ed evoluzione dell’amministrazione digitale”, coordinatore della sezione Privacy e Compliance del Centro di Ricerca Economica e Giuridica nonché Vicepresidente del Comitato Strategico del Centro di Ricerca sull’Amministrazione Digitale presso l'Università degli Studi di Roma Tor Vergata, Dipartimento di Economia e docente nel corso di alta specializzazione in Responsabile della protezione dei dati e sicurezza delle informazioni, nonché auditor ISO/IEC 27001:2015.
+Avvocato, si occupa di diritto della tecnologia da oltre vent'anni, è Data Protection Officer di società multinazionali e professore a contratto in “Fondamenti ed evoluzione dell’amministrazione digitale”, coordinatore della sezione Privacy e Compliance del Centro di Ricerca Economica e Giuridica nonché Vicepresidente del Comitato Strategico del Centro di Ricerca sull’Amministrazione Digitale presso l'Università degli Studi di Roma Tor Vergata, Dipartimento di Economia e docente nel corso di alta specializzazione in Responsabile della protezione dei dati e sicurezza delle informazioni, nonché auditor ISO/IEC 27001:2017.
 
 [Profilo Linkedin](https://www.linkedin.com/in/massimiliano-nicotra-38757328/)
 
